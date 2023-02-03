@@ -1,2 +1,1 @@
-# bothypractica
-resolviendo dudas
+este bothy no para de comer es un terrible
